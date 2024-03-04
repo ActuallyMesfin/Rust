@@ -1,0 +1,1 @@
+Is this language worth it? I don't fucking know, but it sounds nice.
